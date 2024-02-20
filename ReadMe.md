@@ -1,6 +1,6 @@
 <div align=left>
 
-> For shitty hackers(skids) 😆
+> 😆
 
 
 ## About
